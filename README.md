@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @JacobRamierz5
+- 👀 I’m interested in gaming & streaming
+- 🌱 I’m currently learning advanced subjects
+- 💞️ I’m looking to collaborate with popular cod zombies players for high rounds
+- 📫 How to reach me message me on twitter or email me! jaycarey308@gmail.com 
